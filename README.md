@@ -23,3 +23,6 @@
 
 ![IMG_3286](https://github.com/user-attachments/assets/ba71bff8-5f9a-49f3-8777-a2df8041f704)
 
+
+[@jewelryboxyaoi](https://github.com/jewelryboxyaoi) Xander, such a LGBTQ name. Let me tell you something, you deboned dildo. i want you to know i hate everything about you. You always act like a child, you little fart faggot. Your homophobic to Glisten, making him straight and hating gays. Listen here, i dont want to hear about you wanting big hairy men to dominate you woth sweaty armpit hair. I think you need to work on yourself and not wanting to be buttbanged by men. I hope you eat dog shit you greasy hippo. Dandy, Rogder and Dyle will not sit his fat hairy ass on your face and smear it. Please stop asking for Dandy to fart in ur mouth, its really disgusting and child-like. I will not be slapping ur fat sloppy belly.
+
