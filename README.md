@@ -18,13 +18,11 @@
 
 ![IMG_3071](https://github.com/user-attachments/assets/1d42c1d2-bd9f-4a7a-80b9-cb2928ded671)
 
-
+ALL BELOW IS A JOKE, I LOVE ALL MY FRIENDS
 [@1un4rLu11aby](https://github.com/1un4rLu11aby) Dear Ginger/Indie, i cannot express how much hate i have for you. You always whine about Astro not banging you. I hope this meets you well in a hospital because you need help. You drool over a fictional character, wanting them so bad. Everytime we play Dandys world its hell, I do not want you whimpering in my ear when you smell Astro or Twisted Astro on the floor or game. How can you like someone so ugly (pic down below). Hes not going to shove it in you, please stop being a faggot
 
 ![IMG_3286](https://github.com/user-attachments/assets/ba71bff8-5f9a-49f3-8777-a2df8041f704)
 
 
 [@jewelryboxyaoi](https://github.com/jewelryboxyaoi) Xander, such a LGBTQ name. Let me tell you something, you deboned dildo. i want you to know i hate everything about you. You always act like a child, you little fart faggot. Your homophobic to Glisten, making him straight and hating gays. Listen here, i dont want to hear about you wanting big hairy men to dominate you woth sweaty armpit hair. I think you need to work on yourself and not wanting to be buttbanged by men. I hope you eat dog shit you greasy hippo. Dandy, Rogder and Dyle will not sit his fat hairy ass on your face and smear it. Please stop asking for Dandy to fart in ur mouth, its really disgusting and child-like. I will not be slapping ur fat sloppy belly.
-
-I LOVE U BOTH 
 
