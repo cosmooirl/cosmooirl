@@ -19,6 +19,8 @@
 ![IMG_3071](https://github.com/user-attachments/assets/1d42c1d2-bd9f-4a7a-80b9-cb2928ded671)
 
 ALL BELOW IS A JOKE, I LOVE ALL MY FRIENDS
+
+
 [@1un4rLu11aby](https://github.com/1un4rLu11aby) Dear Ginger/Indie, i cannot express how much hate i have for you. You always whine about Astro not banging you. I hope this meets you well in a hospital because you need help. You drool over a fictional character, wanting them so bad. Everytime we play Dandys world its hell, I do not want you whimpering in my ear when you smell Astro or Twisted Astro on the floor or game. How can you like someone so ugly (pic down below). Hes not going to shove it in you, please stop being a faggot
 
 ![IMG_3286](https://github.com/user-attachments/assets/ba71bff8-5f9a-49f3-8777-a2df8041f704)
