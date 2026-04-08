@@ -5,7 +5,7 @@
 <img width="2694" height="2926" alt="Untitled241_20260407143609" src="https://github.com/user-attachments/assets/994015ba-db19-4e24-80e5-1eeefd2c4a9e" />
  ❙❘❙❙❘❙❚❘❙❘❙❚❙❙❘❙❚❙❘
 
-Sprout yumi + comf ༏ 16 𓏼˚̣̣ ADHD / Bipolar ꒰ Cuddle comf 
+Sprout yumi + comf ༏ 16 𓏼˚̣̣ ADHD / Bipolar ꒰ Cuddle comf + boop , kisses
 
 ![IMG_3591](https://github.com/user-attachments/assets/2fed8166-cfbd-4417-b1f9-16b92b54aff5)
 
