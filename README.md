@@ -7,7 +7,8 @@
        ADHD / Bipolar 
      ꒰ Cuddle comf + boop , kisses   ![IMG_3703](https://github.com/user-attachments/assets/1800cbc5-c8a7-48da-b3ac-a97b2d0eaac6)
 
-<img width="2313" height="2782" alt="Untitled261_20260412231234" src="https://github.com/user-attachments/assets/5c433687-7eec-4878-89e0-c259f95bff77" />
+<img width="2265" height="2172" alt="Untitled266_20260412232302" src="https://github.com/user-attachments/assets/2127d464-aa34-46b0-a5c5-8ede55ba2927" />
+
 
 
 
