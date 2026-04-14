@@ -7,6 +7,9 @@ Sprout yume + comf ༏ 16 𓏼˚̣  ADHD / Bipolar   ꒰ Cuddle comf + boop , ki
 
 <img width="2235" height="2417" alt="Untitled277_20260414180838" src="https://github.com/user-attachments/assets/12482f02-86ef-42b3-84ef-6afdaaf7e992" />
 
+ ❙❘❙❙❘❙❚❘❙❘❙❚❙❙❘❙❚❙❘
+
+  𓏼 double yume kindly dni ꒰ i int with SELECTIVE double yumes˚⌒ ( only like 1 (◌´ᗜ`◌) )
 
 
 
