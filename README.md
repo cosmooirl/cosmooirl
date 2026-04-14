@@ -9,7 +9,7 @@ Sprout yume + comf ༏ 16 𓏼˚̣  ADHD / Bipolar   ꒰ Cuddle comf + boop , ki
 
  ❙❘❙❙❘❙❚❘❙❘❙❚❙❙❘❙❚❙❘
 
-  𓏼 double yume kindly dni ꒰ i share with SELECTIVE double yumes˚⌒ ( only like 1 (◌´_`◌) )
+  𓏼  ꒰  yume share is SELECTIVE ˚⌒ (◌´_`◌) 
 
 
 
