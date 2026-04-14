@@ -3,7 +3,7 @@
  ❙❘❙❙❘❙❚❘❙❘❙❚❙❙❘❙❚❙❘
 
 ![IMG_3702](https://github.com/user-attachments/assets/c7033e6a-3466-4d25-9537-2a3fda3735df)
-     Sprout yumi + comf ༏ 16 𓏼˚̣̣
+     Sprout yume + comf ༏ 16 𓏼˚̣̣
        ADHD / Bipolar 
      ꒰ Cuddle comf + boop , kisses   ![IMG_3703](https://github.com/user-attachments/assets/1800cbc5-c8a7-48da-b3ac-a97b2d0eaac6)
 
