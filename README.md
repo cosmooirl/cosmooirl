@@ -20,7 +20,7 @@ Sprout yume + comf ༏ 16 𓏼˚̣  ADHD / Bipolar   ꒰ Cuddle comf + boop , ki
 
 𓊆 🍓🍰 𓊇
 
-𓏼 Fruitcake / cakefruit int always =͟͟͞♡ i also like mooncake and candycake ˘͈ᵕ˘͈
+𓏼 Fruitcake / cakefruit int always =͟͟͞♡ i also like mooncake and mimecake ˘͈ᵕ˘͈
 
 ⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀
 
