@@ -24,4 +24,4 @@ Sprout yume + comf ༏ 16 𓏼˚̣  ADHD / Bipolar   ꒰ Cuddle comf + boop , ki
 
 ⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀
 
-𓏼 int and dnis are not really a big deal with me, just dont be weird
+𓏼 int and dnis are not really a big deal with me, just dont be disgusting 
