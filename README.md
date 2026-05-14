@@ -9,7 +9,7 @@ Sprout yume + comf ༏ 16 𓏼˚̣  ADHD / Bipolar   ꒰ Cuddle comf + boop , ki
 
  ❙❘❙❙❘❙❚❘❙❘❙❚❙❙❘❙❚❙❘
 
-  𓏼  ꒰  yume share is SELECTIVE ˚⌒ (◌´_`◌) 
+  𓏼  ꒰  i dont share yume sorry ˚⌒ (◌´_`◌) 
 
 
 <img width="1504" height="230" alt="Untitled291_20260418185349" src="https://github.com/user-attachments/assets/595d4511-4294-47c6-baad-e56fc6319b26" />
@@ -20,7 +20,7 @@ Sprout yume + comf ༏ 16 𓏼˚̣  ADHD / Bipolar   ꒰ Cuddle comf + boop , ki
 
 𓊆 🍓🍰 𓊇
 
-𓏼 Fruitcake / cakefruit int always =͟͟͞♡ i also like mooncake and mimecake ˘͈ᵕ˘͈
+𓏼 Fruitcake / cakefruit int always =͟͟͞♡ i also like mooncake, mimecake and bubblecake !
 
 ⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀⁀
 
