@@ -4,4 +4,4 @@
 
 Moonvision int ━     Dandys world fandom iwc—      █           —        c*h comf — °。
 
-█    .  HyperSensitive   =   Cosmo fictkin / irl
+█    .     =   Cosmo fictkin / irl.        █    i dont trust easily , or ever . 
