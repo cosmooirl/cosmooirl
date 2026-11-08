@@ -8,7 +8,7 @@
 
   - BW! I have mild ADHD and bipolar, I’m still trying to get tested on other stuff, I tend to zone out sometimes if I’m not talking to anyone. if u wanted to talk to me and I don’t respond that’s 99.9% of the time. I have a movement disorder, causing my hands to shake a little but all the time. my spelling mistakes WILL be noticed. do not correct my stupid spelling mistakes unless I really know you personally, I dislike it. I move alot on ponytown, I have a habit of moving my joystick constantly. I don’t like being left alone, I will probably snuggle up into a small pile of people, hiding or just needing the comfort.
 
-cosmosona
+cosmosona I’m still trying to work on his icing he looks like a toddler rn
 <img width="931" height="1607" alt="Untitled8_20261108133346" src="https://github.com/user-attachments/assets/1a37d04a-cafc-4023-a298-091fd8e1892d" />
 
 
