@@ -1,3 +1,7 @@
+<img width="671" height="671" alt="IMG_0205" src="https://github.com/user-attachments/assets/7259c0aa-409a-4b4c-a956-3bd463cf3cba" />
+
+
+
 - Hii u can call me Cosmo or Curse, any names you know me by idc, I’m USUALLY at Dandy’s world up at spawn, sth area or island making stuff. I am usually online mostly on weekends or sometimes a couple days on the week.
 
   .
@@ -16,3 +20,7 @@ cosmosona
 - I lovlovelvoe all my friends even if I only have a little, I hope to have muchh more friends to int tho I’m socially shy and cannot handle a conversation with someone I don’t know or my friends don’t know it’s so awkward.
 
 - <img width="736" height="736" alt="IMG_0204" src="https://github.com/user-attachments/assets/bb850b55-0e5e-4ff5-a81b-69dbe6cc4379" />
+
+- dnis literally don’t be stupid or weird , I constantly forget that darkshipping isn’t CONSIDERED bad but in my opinion it’s still very creepy and unhealthy. ex friends, if I have not reached out to you DO NOTTTTTT interact w me 😭 I’ve had past friends walk up to me like were chill no we ain’t.
+
+- bad things I do,,,, I easily forgive people, I genuinely don’t care what you do if it’s not hurting me physically or mentally idgaf. I swear. I slur but I only like say one slur,,,
