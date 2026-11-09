@@ -9,7 +9,7 @@
   - BW! I have mild ADHD and bipolar, I’m still trying to get tested on other stuff, I tend to zone out sometimes if I’m not talking to anyone. if u wanted to talk to me and I don’t respond that’s 99.9% of the time. I have a movement disorder, causing my hands to shake a little but all the time. my spelling mistakes WILL be noticed. do not correct my stupid spelling mistakes unless I really know you personally, I dislike it. I move alot on ponytown, I have a habit of moving my joystick constantly. I don’t like being left alone, I will probably snuggle up into a small pile of people, hiding or just needing the comfort.
 
 
-  - I have lots of kins but my main ones are Curse (exe, CurseOfX) Cosmo (Dandy’s world) or Funtime foxy (FNAF). Doubles are genuinely so cool like int??? we can yap slllop about them. when it comes to yumishippimg I am a little uncomfortable with doubles but I won’t like… not int with you. I yumiship Sprout and Metal Curse (mostly sprout) I’ve toned down a bit with sprout….some of my friends know I was a RABID beast but I’m calm now mostly
+  - I have lots of kins but my main ones are Curse (exe, CurseOfX) and Cosmo (Dandy’s world). doubles r okay to int unless ur weird or int with weirdos. when it comes to yumishippimg I am a little uncomfortable with doubles but I won’t like… not int with you. I yumeship Sprout and Metal Curse
 
 - I lovlovelvoe all my friends even if I only have a little, I hope to have muchh more friends to int tho I’m socially shy and cannot handle a conversation with someone I don’t know or my friends don’t know it’s so awkward.
 
