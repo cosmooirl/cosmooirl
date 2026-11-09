@@ -15,4 +15,4 @@
 
 - <img width="736" height="736" alt="IMG_0204" src="https://github.com/user-attachments/assets/bb850b55-0e5e-4ff5-a81b-69dbe6cc4379" />
 
-- dnis literally don’t be stupid or weird , I constantly forget that darkshipping isn’t CONSIDERED bad but in my opinion it’s still very creepy and unhealthy. ex friends, if I have not reached out to you DO NOTTTTTT interact w me 😭 I’ve had past friends walk up to me like were chill no we ain’t.
+- dnis literally don’t be stupid or weird , I constantly forget that darkshipping isn’t CONSIDERED bad but in my opinion it’s still very creepy and unhealthy. ex friends, if I have not reached out to you DO NOTTTTTT interact w me 😭 I’ve had past friends walk up to me like were chill no we ain’t. people who harasses other doubleskins or doubleyumes when they did nothing to you.
