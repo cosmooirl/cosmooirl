@@ -2,7 +2,7 @@
 
 
 
-- Hii u can call me Sprinkles or Curse, any names you know me by idc, I’m USUALLY at Dandy’s world up at spawn, sth area or island making stuff. I am usually online mostly on weekends or sometimes a couple days on the week.
+- Hii u can call me Sprinkles or Curse, any names you know me by idc, I’m USUALLY at Dandy’s world up at spawn, sth area or island making stuff. I am usually online mostly on weekends or sometimes a couple days on the week. I have TWO styles, one the outlines are almost all shades of grayish blues and the second is lower quality, some parts are shaded the same color and overall just lazy 
 
   .
 
