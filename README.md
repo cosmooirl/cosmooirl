@@ -8,7 +8,7 @@
 
 <div align="center">
 <details>
-<summary> hvy dnis </summary>
+<summary> ഒ·˚ hvy dni . </summary>
 
  pedos + pro/darkshippers
 
