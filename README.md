@@ -1,18 +1,1 @@
 
-
-
-
-- Hii u can call me Sprinkles or Curse, any names you know me by idc, I’m USUALLY at Dandy’s world up at spawn, sth area or island making stuff. I am usually online mostly on weekends or sometimes a couple days on the week. I have TWO styles, one the outlines are almost all shades of grayish blues and the second is lower quality, some parts are shaded the same color and overall just lazy or I try new styles and then hate them forever
-
-  .
-
-  - BW! I have mild ADHD and bipolar, I’m still trying to get tested on other stuff, I tend to zone out sometimes if I’m not talking to anyone. if u wanted to talk to me and I don’t respond that’s 99.9% of the time me zoned out. I have a movement disorder, causing my hands to shake a little but all the time. my spelling mistakes WILL be noticed. do not correct my stupid spelling mistakes unless I really know you personally, I dislike it. I move alot on ponytown, I have a habit of moving my joystick constantly when im not offtab or semiafk.I don’t like being left alone, I will probably snuggle up into a small pile of people, hiding or just needing the comfort. but you’ll moslty see me alone because I’m too scared to go up to someone and cuddle if I’m not 100% sure they allow it
-
-
-  - I have lots of kins but my main ones are Curse (exe, CurseOfX) and Sprout (Dandy’s world). doubles r okay to int unless ur weird or int with weirdos. some doubles I will physically not intact with because I know ur creepy or just rude. I’ve had someone ask if I recreated the actions Curse ever did, no, I have not, I do not do that to myself please don’t ever ask me that I will get uneasy I yume sprout doubles int idm jst dont be weird
-
-- I lovlovelvoe all my friends even if I only have a little, I hope to have muchh more friends to int tho I’m socially shy and cannot handle a conversation with someone I don’t know or my friends don’t know it’s so awkward.
-
-- <img width="736" height="736" alt="IMG_0204" src="https://github.com/user-attachments/assets/bb850b55-0e5e-4ff5-a81b-69dbe6cc4379" />
-
-- dnis literally don’t be stupid or weird ,ex friends, if I have not reached out to you DO NOTTTTTT interact w me 😭 I’ve had past friends walk up to me like were chill no we ain’t. people who harasses other doubleskins or doubleyumes when they did nothing to you. people who trash talk me, I literally have friends that tell me it’s embarrassing. Half of the dandys world up at spawn Dni srs if I don’t know you or my friends don’t dni. I’ve fix the saturation on my ipad so I don’t piss off some randos I literally misscolored an actual cake roll never knew it was that srs to harass me
