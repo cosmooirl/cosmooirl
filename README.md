@@ -5,13 +5,22 @@
 <details>
 <summary> hvy dnis </summary>
 
-* pedos + pro/darkshippers
-* Lucy supporters
-* ex friends 
-* half of the Russian sonic fans r creeps and support Sark’s actions and make fun of it
-* Winter/Wawa ( told me he was 16 n forced me into an online s3x rp )
-* 15goldensonic ( Supports Sarks’ nasty actions)
-* ANYONE who ints with pawlickk n there weird group
+ pedos + pro/darkshippers
+Lucy supporters
+
+ ex friends 
+ 
+ half of the Russian sonic fans r creeps and support Sark’s actions and make fun of it
+
+ Winter/Wawa (told me he was 16 n forced me into an online s3x rp)
+ 
+ 15goldensonic (Supports Sarks’ nasty actions)
+ 
+ hottopicxz (talked crap about his own girlfriend n was just a creep)
+ 
+ ANYONE who ints with pawlickk n there weird group
+ 
+  
 
 
 
