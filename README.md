@@ -20,7 +20,7 @@ Lucy supporters
 
 vax (crazy ex who stalked me for months and fetished Curse, got jealous when I was with any of my friends)
  
- Winter/Wawa (told me he was 16 n forced me into an online s3x rp)
+ Winter/Wawa (told me he was 16 when he was 14 and was super perverted towards me when were both in a relationship, made sexual jokes about me and my last partner)
  
  15goldensonic (Supports Sarks’ nasty actions)
  
