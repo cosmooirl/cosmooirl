@@ -16,6 +16,8 @@ Lucy supporters
 
  ex friends 
 
+do not make sexual jokes unless ur a very super close friend
+
  people who make others use tonetags i personally dont use them nor do I care for them
 
 vax (crazy ex who stalked me for months and fetished Curse, got jealous when I was with any of my friends)
