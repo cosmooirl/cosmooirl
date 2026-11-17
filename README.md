@@ -8,24 +8,6 @@
 
 <div align="center">
 <details>
-<summary> ഒ·˚ hvy dni . </summary>
+<summary> ഒ·˚ hey . </summary>
 
- pedos + pro/darkshippers
-
-Lucy supporters
-
- ex friends unless I’ve reached out to u or I know ur not problematic:/
-
-do not make sexual jokes unless ur a very super close friend
-
- people who make others use tonetags i personally dont use them nor do I care for them
-
-vax (crazy ex who stalked me for months and fetished Curse, got jealous when I was with any of my friends)
- 
- Winter/Wawa (told me he was 16 when he was 14 and was super perverted towards me when were both in a relationship, made sexual jokes about me and my last partner)
- 
- 15goldensonic (Supports Sarks’ nasty actions)
- 
- hottopicxz (talked crap about his own girlfriend n was just a creep)
- 
- ANYONE who ints with pawlickk n there weird group
+ wip
