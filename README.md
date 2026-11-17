@@ -14,7 +14,7 @@
 
 Lucy supporters
 
- ex friends 
+ ex friends unless I’ve reached out to u or I know ur not problematic:/
 
 do not make sexual jokes unless ur a very super close friend
 
