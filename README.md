@@ -1,4 +1,3 @@
-<img width="928" height="958" alt="Untitled14_20261116065655" src="https://github.com/user-attachments/assets/c63440ca-4561-4fb8-a905-e5b3c783f584" />
 
 
 <div align="center">
