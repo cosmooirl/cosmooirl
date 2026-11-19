@@ -1,3 +1,6 @@
+<img width="928" height="958" alt="Untitled14_20261116065655" src="https://github.com/user-attachments/assets/c63440ca-4561-4fb8-a905-e5b3c783f584" />
+
+
 <div align="center">
  
 [![Visitors](https://api.visitorbadge.io/api/visitors?path=cosmooirl&label=%F0%9D%93%AC%F0%9D%93%BE%F0%9D%93%BB%F0%9D%93%BC%F0%9D%93%AE%F0%9D%93%BC&labelColor=%23fffbef&countColor=%23ffb6e1&style=plastic)](https://visitorbadge.io//status?path=cosmooirl)
