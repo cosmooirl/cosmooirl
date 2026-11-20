@@ -2,9 +2,10 @@
 
 <div align="center">
  
-[![Visitors](https://api.visitorbadge.io/api/visitors?path=cosmooirl&label=%F0%9D%93%AC%F0%9D%93%BE%F0%9D%93%BB%F0%9D%93%BC%F0%9D%93%AE%F0%9D%93%BC&labelColor=%23fffbef&countColor=%23ffb6e1&style=plastic)](https://visitorbadge.io//status?path=cosmooirl)
+![Visitors](https://api.visitorbadge.io/api/visitors?path=cosmooirl&label=creek&labelColor=%23493f71&countColor=%23deba8a)
 
 
+<img width="735" height="538" alt="Untitled27_20261120123005" src="https://github.com/user-attachments/assets/396d2a31-fbce-419c-b95e-a421fef02c62" />
 
 
 
